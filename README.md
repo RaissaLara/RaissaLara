@@ -1,0 +1,5 @@
+- 👋 ola meu nome é @rayssaa_siilvah (insta)
+- 👀 conhecimentos basicos sobre o scratch e java
+- 🌱 
+- 💞️ 
+- 📫 
